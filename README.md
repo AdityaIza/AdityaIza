@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Welcome+to+my+Home;Slowly+but+sure!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Welcome+to+my+Home;Dota+offlaner+who+retired+early+and+try+learn+something+new)](https://git.io/typing-svg)
