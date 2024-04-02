@@ -1,3 +1,1 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Welcome+to+my+Home;Slowly+but+sure!)](https://git.io/typing-svg)
-
-https://camo.githubusercontent.com/54c5caa2092f463944fa9654cf0338a66d7eaf8a7be4346f3a24dca34082aebb/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d73656f656b61266c6162656c3d50726f66696c65253230766965777326636f6c6f723d353038443639267374796c653d666c6174
